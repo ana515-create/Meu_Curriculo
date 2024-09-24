@@ -1,1 +1,1 @@
-https://ana515-create.github.io/Meucurriculo/
+https://ana515-create.github.io/Meu_Curriculo/
